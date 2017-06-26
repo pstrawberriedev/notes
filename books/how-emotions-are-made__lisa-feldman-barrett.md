@@ -1,5 +1,4 @@
-# How Emotions are Made
-Lisa Feldman Barrett
+# How Emotions are Made by Lisa Feldman Barrett
 
 -------------
 
